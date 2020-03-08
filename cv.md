@@ -5,4 +5,4 @@
 1. 
 1. Only labs and courseworks in university.
 1. I'm studying at BNTU at this moment.
-1. About English: I go to the Eglish courses at the Streamline. German: B1.
+1. About English: A1-A2. I go to the Eglish courses at the Streamline. German: B1.
